@@ -1,2 +1,0 @@
-# mirsearch123
-trip
